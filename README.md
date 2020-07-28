@@ -1,2 +1,2 @@
-# Bot-discord.js
-Bot Music discord.js
+# LAH KO KOSONG
+MAKANYA BELI HAPE BARU
